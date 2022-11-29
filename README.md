@@ -1,1 +1,1 @@
-# Informatica
+# INFO
